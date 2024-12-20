@@ -1,2 +1,0 @@
-# repository_associate_developer
-jhahahahsahhaha
